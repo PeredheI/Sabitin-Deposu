@@ -1,0 +1,2 @@
+# Sabitin-Deposu
+yeni diller
